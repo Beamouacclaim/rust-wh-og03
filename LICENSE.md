@@ -1,4 +1,4 @@
-
+Raro rust-traps WH é o melhor rust-traps WH com mira silenciosa e morte instantânea. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
